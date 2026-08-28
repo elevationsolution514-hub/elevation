@@ -1,4 +1,4 @@
-# About Elevation Solutions
+# Elevation Solutions
 
 ## Elite Operational Strategists
 
